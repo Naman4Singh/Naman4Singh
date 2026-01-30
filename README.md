@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 Reach me on TG and DC @Naman4Singh on everything
 - 😄 Pronouns: Naman
-- ⚡ Fun fact: I am just 21 
+- ⚡ Fun fact: I am just 22
 
 <!---
 Naman4Singh/Naman4Singh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
